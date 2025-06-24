@@ -31,7 +31,7 @@
 
 点击访问：<a href="https://hl428.pages.dev/"> 独家黑料</a>
 
-点击访问：<a href="https://hl426.pages.dev/">国内吃瓜爆料黑料社曝门</a>
+点击访问：<a href="https://hl426.pages.dev/">国内吃瓜爆料黑料社曝门最新</a>
 
 点击访问：<a href="https://hl380.pages.dev/">黑料专区 爆料</a>
 
